@@ -1,1 +1,1 @@
-# prime-springshotel
+# prime-springs-hotel
